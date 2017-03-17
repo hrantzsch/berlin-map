@@ -1,0 +1,3 @@
+# Notes
+
+* http://readysetraphael.com/
